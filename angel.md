@@ -16,3 +16,8 @@ on trading for food as well.
 3. Likes a stupid wizard stick
 4. Doesn't own a Bible
 5. Owns a book called "How to get God to Notice You"
+
+
+# Credits
+
+![Here](https://aminoapps.com/c/arts-and-ocs/page/user/xi4jv63a6bhylbouafqg36k5nq/BQqJ_Pdrhbf5rQwD3vvkbMWkWrLvZzXbbjni1)
