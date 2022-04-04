@@ -4,6 +4,8 @@
 
 ![angel](angel.jpeg)
 
+![angel 2](angel2.png)
+
 ## Backstory
 
 A fallen angel that is **extremely** poor, lives in an abandoned church and scavenges for food. It often relies
